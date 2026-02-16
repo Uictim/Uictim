@@ -11,3 +11,7 @@
 <img width="882" height="1017" alt="1620" src="https://github.com/user-attachments/assets/dee4ee4d-a425-49e6-8ff5-426c448a3659" />
 
 -all art by @/ttempest_png on twt, (i luv u moot🩵)
+
+
+![1627](https://github.com/user-attachments/assets/282059a3-e0a0-4f4e-a2f1-89f8fed60643) ![1628](https://github.com/user-attachments/assets/47384ebf-3b76-42ee-887d-bb593fd0ff1d)
+
