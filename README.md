@@ -4,8 +4,10 @@
 
 ‍
 __all art by me 3: inspo by @IHASAFACE-LULZ on gh !♡__
+
+‍ 　‍
 ‍ 　‍‍ 
-<img width="236" height="2548" alt="1000010373" src="https://github.com/user-attachments/assets/3ae5f793-c844-4d7c-838a-2bc2392665af" />
+<img width="236" height="548" alt="1000010373" src="https://github.com/user-attachments/assets/3ae5f793-c844-4d7c-838a-2bc2392665af" />
 <img width="303" height="548" alt="1000010378" src="https://github.com/user-attachments/assets/d4c6122b-53ca-4012-a115-70083943d176" />
 
 
