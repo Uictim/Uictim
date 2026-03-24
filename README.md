@@ -1,20 +1,9 @@
-
-![1000010168](https://github.com/user-attachments/assets/4d7662b9-057b-4542-8ece-2a85b3857f89)
-‍ 　‍‍ 　‍‍
-
-‍
-__all art by me 3: inspo by @IHASAFACE-LULZ on gh !♡__
-
-‍ 　‍
-‍ 　‍‍ 
-<img width="236" height="548" alt="1000010373" src="https://github.com/user-attachments/assets/3ae5f793-c844-4d7c-838a-2bc2392665af" />
-<img width="303" height="548" alt="1000010378" src="https://github.com/user-attachments/assets/d4c6122b-53ca-4012-a115-70083943d176" />
-
-
-<img width="159" height="103" alt="1000010375" src="https://github.com/user-attachments/assets/0185643c-2118-4040-b367-2f92795a97b8" />
-<img width="159" height="103" alt="1000010377" src="https://github.com/user-attachments/assets/4e29d9dc-86e8-41ad-b5e6-8dac8432998d" />
-<img width="159" height="103" alt="1000010376" src="https://github.com/user-attachments/assets/7f92e5e7-630a-4478-b5d6-0ce9032c1890" />
-
-
-‍ 　‍hro this WEB PISSES ME OFF. https://tdl.atabook.org I'll work on this later I swea
-
+![](https://komarev.com/ghpvc/?username=antonkomarev&color=a0a0a0&label=꩜&abbreviated=true)
+<img width="100" height="100" alt="Untitled33_20260324130421" src="https://github.com/user-attachments/assets/a355bea9-19cf-4622-8753-9049c732560c" />  huuugee wip
+<p align="center">
+  <img src= "https://github.com/user-attachments/assets/c8d86c72-1638-4138-954c-e928e4f3e532" width="500" height="500" border="10"/> fuck, guys coding is making me end it
+</p>
+<details>
+    <summary>socials</summary>
+  [Rentry](https://rentry.co/AGENTS)   [Extended Rentry](https://rentry.co/H4ck3r) . [Guns.lol](https://guns.lol/vicagent) . [Pronouns.cc](https://pronouns.cc/@TDL)
+</details>
