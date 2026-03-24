@@ -4,6 +4,9 @@
   <img src= "https://github.com/user-attachments/assets/c8d86c72-1638-4138-954c-e928e4f3e532" width="500" height="500" border="10"/> fuck, guys coding is making me end it
 </p>
 <details>
-    <summary>socials</summary>
-  [Rentry](https://rentry.co/AGENTS)   [Extended Rentry](https://rentry.co/H4ck3r) . [Guns.lol](https://guns.lol/vicagent) . [Pronouns.cc](https://pronouns.cc/@TDL)
-</details>
+  <summary>Socials </summary>
+
+   [Rentry](https://rentry.co/AGENTS/).    [Extended Rentry](https://rentry.co/H4ck3r) . [Guns.lol](https://guns.lol/vicagent) . [Pronouns.cc](https://pronouns.cc/@TDL)
+</details> 
+
+ 
