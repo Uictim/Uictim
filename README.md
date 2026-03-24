@@ -12,7 +12,7 @@
 <details> 
   <summary>Socials </summary>    
   
-   [<img width="120" height="120" alt="Untitled33_20260324193535" src="https://github.com/user-attachments/assets/bec35fa7-ac86-484a-8c4a-7aaae2f235d2"/>
+[<img width="120" height="120" alt="Untitled33_20260324193535" src="https://github.com/user-attachments/assets/bec35fa7-ac86-484a-8c4a-7aaae2f235d2" />
 ](https://rentry.co/agents) .  [<img width="120" height="120" alt="Untitled33_20260324193531" src="https://github.com/user-attachments/assets/eae9bdea-272a-4ecd-82ec-9999c1728bfb" />
 ](https://rentry.co/H4ck3r) .
                [<img width="120" height="120" alt="Untitled33_20260324193529" src="https://github.com/user-attachments/assets/f6979725-b54e-4283-a0d2-e1369445eb41" />
