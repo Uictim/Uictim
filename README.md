@@ -40,5 +40,6 @@ $\color{#efefef}\Huge{\textbf{every art is mines. .}}$
 
 
 
-![](https://github.com/user-attachments/assets/0d2306e5-7582-4faa-a9ce-9b72439ba754) 
+ 
 
+![kiss](https://github.com/user-attachments/assets/10520f75-2f7b-409a-b4be-df2e4dd8c407) me kissing my bfs btw. 
