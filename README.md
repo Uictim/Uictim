@@ -1,10 +1,10 @@
- ![](https://komarev.com/ghpvc/?username=antonkomarev&color=e4aec9&label=꩜&abbreviated=true)
-<img width="195" height="178" alt="568335286-a355bea9-19cf-4622-8753-9049c732560c-ezgif com-effects" src="https://github.com/user-attachments/assets/482d3c2c-a2fc-487f-ad98-9a84f4716338" />
- $\color{#e4aec9}\Huge{\textbf{feel free to interact as you wish, dear individual.}}$
+ ![](https://komarev.com/ghpvc/?username=antonkomarev&color=efefef&label=꩜&abbreviated=true)
+<img width="195" height="178" alt="IMG_20260406_133415" src="https://github.com/user-attachments/assets/1b33d46a-1445-4975-98f0-fd38a03ab087" />
+ $\color{#efefef}\Huge{\textbf{<<made by my kiddos.}}$
   
 <p align="center">
   <a href="https://TDL.atabook.org/">
-    <img src="https://github.com/user-attachments/assets/4027fe70-bba4-4142-a6a4-1404d85494a9"width="900" height="900" /> <a alt="ME AND MY TWINY HAZY, HIIII HAZARDDIEE!/>
+    <img src="https://github.com/user-attachments/assets/c98673dd-e359-4941-93dc-62a495cc08f4"width="900" height="900" /> <a alt="ME AND MY TWINY HAZY, HIIII HAZARDDIEE!/>
   </a>
 </p>
 
@@ -12,16 +12,14 @@
 <details> 
   <summary>Socials </summary>    
   
-[<img width="120" height="120" alt="Untitled33_20260324193535" src="https://github.com/user-attachments/assets/bec35fa7-ac86-484a-8c4a-7aaae2f235d2" />
-](https://rentry.co/agents) .  [<img width="120" height="120" alt="Untitled33_20260324193531" src="https://github.com/user-attachments/assets/eae9bdea-272a-4ecd-82ec-9999c1728bfb" />
-](https://rentry.co/H4ck3r) .
-               [<img width="120" height="120" alt="Untitled33_20260324193529" src="https://github.com/user-attachments/assets/f6979725-b54e-4283-a0d2-e1369445eb41" />
-](https://guns.lol/vicagent) . [<img width="120" height="120" alt="Untitled33_20260324193523" src="https://github.com/user-attachments/assets/e6cde081-e655-40f9-ba27-38780acc1796" />
-](https://pronouns.cc/@TDL) 
+.  [<img width="260" height="260" alt="Untitled33_20260324193531" alt="IMG_20260406_130820" src="https://github.com/user-attachments/assets/3a76d09d-cf8b-495a-9312-280b0decdfcb" />
+](https://rentry.co/H4ck3r) 
+       [<img width="160" height="160" src="https://github.com/user-attachments/assets/47be2a09-12d5-49fe-8020-20af253ceb5b" />](https://guns.lol/vicagent) 
+[<img width="260" height="260" src="https://github.com/user-attachments/assets/91b954af-4f29-49a8-b331-cb707a537c9c" />](https://TDL.atabook.org/) 
                
 </details>
 <p align="center">
-$\color{#e4aec9}\Huge{\textbf{ma babehhes 😂😂.}}$ 
+$\color{#efefef}\Huge{\textbf{(wip) my friends.}}$ 
 </p>
 
 <p align="center">
