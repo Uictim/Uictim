@@ -20,12 +20,12 @@
 </details>
 
 <p align="center">
-$\color{#efefef}\Huge{\textbf{(wip) my friends.}}$ 
+$\color{#efefef}\Huge{\textbf{every art is mines. .}}$ 
 </p>
 
-Hi
-<p align="right">
-<img src="https://github.com/user-attachments/assets/18a8bef1-5f6c-4160-b633-ebea6cf2d7a3" width="500" height="900" />
+
+<p align="center">
+<img src="https://github.com/user-attachments/assets/e4f18672-b028-451b-b5af-eca3711b79e6" width="1000" height="1800" />
  <a alt="🩹 />
   
 </p>
