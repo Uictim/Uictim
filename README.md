@@ -18,12 +18,20 @@
 [<img width="260" height="260" src="https://github.com/user-attachments/assets/91b954af-4f29-49a8-b331-cb707a537c9c" />](https://TDL.atabook.org/) 
                
 </details>
+
 <p align="center">
 $\color{#efefef}\Huge{\textbf{(wip) my friends.}}$ 
 </p>
 
-<p align="center">
-  <a href="https://github.com/HAZARDING"><img width="132" height="304" alt="IMG_20260324_185611" src="https://github.com/user-attachments/assets/81835c3a-ddfe-42bc-a3a0-a5ccfaad0858" /> <a href="https://github.com/PRlMAL"><img width="132" height="422" alt="IMG_20260324_185814" src="https://github.com/user-attachments/assets/88d3ca1a-4b3a-463e-b613-b5604168706b" /> <a href="https://github.com/UICTIM"><img width="132" height="422" alt="IMG_20260324_185751" src="https://github.com/user-attachments/assets/cf6e6e29-e7f3-4222-a2d5-908e79235aeb" /> <a href="https://github.com/PlXELS"><img width="132" height="422" alt="IMG_20260324_185622" src="https://github.com/user-attachments/assets/cc68470c-3734-4889-abc2-27f8c58074de" />
+Hi
+<p align="right">
+<img src="https://github.com/user-attachments/assets/18a8bef1-5f6c-4160-b633-ebea6cf2d7a3" width="500" height="900" />
+ <a alt="🩹 />
+  
 </p>
+  
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31egco2yozg7rydgr22azprrdzeq&cover_image=true&theme=spotify-embed&show_offline=false&background_color=360018&interchange=true&profanity=true&mode=dark&bar_color=9c2460&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31egco2yozg7rydgr22azprrdzeq&cover_image=true&theme=spotify-embed&show_offline=false&background_color=360018&interchange=true&profanity=true&mode=dark&bar_color=9c2460&bar_color_cover=false)
+
+
