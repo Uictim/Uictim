@@ -12,7 +12,7 @@
 <details> 
   <summary>Socials </summary>    
   
-.  [<img width="260" height="260" alt="Untitled33_20260324193531" alt="IMG_20260406_130820" src="https://github.com/user-attachments/assets/3a76d09d-cf8b-495a-9312-280b0decdfcb" />
+  [<img width="260" height="260" alt="Untitled33_20260324193531" alt="IMG_20260406_130820" src="https://github.com/user-attachments/assets/3a76d09d-cf8b-495a-9312-280b0decdfcb" />
 ](https://rentry.co/H4ck3r) 
        [<img width="160" height="160" src="https://github.com/user-attachments/assets/47be2a09-12d5-49fe-8020-20af253ceb5b" />](https://guns.lol/vicagent) 
 [<img width="260" height="260" src="https://github.com/user-attachments/assets/91b954af-4f29-49a8-b331-cb707a537c9c" />](https://TDL.atabook.org/) 
