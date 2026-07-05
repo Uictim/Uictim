@@ -1,10 +1,30 @@
 ⠀ ⠀ ⠀
 
-##### <p align="center"> <img src="https://komarev.com/ghpvc/?username=pt-awards&label=Victim's+of+Virabots&color=9f0000" alt="pawnresearch" /> </p>
-##### <p align="center"><img src="https://github.com/user-attachments/assets/9835545a-f75b-4bc9-93f1-e83fa015d543" width="500" height="auto" align="center"></img></a> <br>
+
+
  ⠀ ⠀ 
-#####  <p align="center"></img></a>⠀   ⠀<a href="https://TDL.atabook.org/"><img src="https://github.com/user-attachments/assets/c63d4e9f-5077-4028-a5cf-a7155abebaad" width="120" height="auto" align="center"></img></a>⠀ ⠀   ⠀<a href="https://rentry.co/DARKY"><img src="https://files.catbox.moe/8k5a7j.gif" width="120" height="auto" align="center"></img><p align="center"><a href="https://guns.lol/vicagent"><img src="https://files.catbox.moe/oqvgpr.gif" width="120" height="auto" align="center"></img><p align="center"> </p> ⠀ ⠀
-⠀
-<p align="left"> $${\color{#f1ffff} ‎ ‎‎Name's \ Dark \ or \ Prince \ / \ He \ / \ BYTE \ 7teen \ ASPD \ BIPOLAR \ BPD .‎}$$ </p>
-<p align="left"> $${\color{#f1ffff} ‎ ‎‎C×H \ always \ enc \, demon \ prince \ black \ cat \ thing \ / \ always \ on \ AFK \ mostly \ OFFTAB.‎}$$ </p>
-</img><p align="right"><a href="https://github.com/UICTIM"><img src="https://files.catbox.moe/iadkup.png" width="305" height="auto" align="right"></img><p align="right"> </p> ⠀ ⠀ ⠀
+⠀ ⠀
+##### <p align="center"><img src="https://github.com/user-attachments/assets/aa04e86d-9b20-4dc6-a4da-a75454264c8a" width="700" height="auto" align="center"></img></a> <br>
+
+
+
+<p align="center">⠀ 
+<sub>${\text{\color{#A30000} 0<-< Name's 　\color{#960505} Dark 　\color{#6C1818} ou　\color{#502424} VIRUS ◞　\color{#392E2E} 7teen 　\color{#313131} transmasc 　\color{#313131} although 　\color{#392E2E} feminine ⠀terms　\color{#502424} are encouraged .}}$ <br>
+${\text{\color{#6C1818} professionally 　\color{#960505} Diagnosed 　\color{#A30000} with　\color{#B0093A}  ASPD, 　\color{#A02949} BIPOLAR 　\color{#960505} Nʼ BPD　\color{#6C1818} Iwcuf 　\color{#502424} — ⭕️ }}$ <br>
+</sub>
+ ⠀ ⠀ <p align="center"><img src="https://github.com/user-attachments/assets/be57835d-3d1a-47ee-903e-740cd3a220cc" width="500" height="auto" align="center"></img></a> <br> ⠀
+
+<img align="right" width="420" height="auto" alt="image" src="https://github.com/user-attachments/assets/2d12bf6a-2660-4ff6-9968-af2fd645eb4e"  /> ‎ <br>
+
+<p align="left">               ‎                    ‎   ‎        ‎‎‎  ‎   ‎ ‎       ‎  ‎‎‎      ‎‎‎ ‎            ‎   ‎   ‎  ‎   ‎  ‎    ‎   ‎   ‎   ‎ ‎   ‎   ‎ ‎  <sub>${\text{\color{#A30000} I LOVE my twins! 　
+ \color{#960505} MY most adorbs seapuppito }}$ </sub> </p>
+ <p align="left">               ‎                    ‎   ‎        ‎‎‎  ‎   ‎ ‎       ‎  ‎‎‎      ‎‎‎ ‎            ‎   ‎   ‎  ‎   ‎  ‎    ‎   ‎   ‎   ‎ ‎   ‎   ‎ ‎  <sub>${\text{\color{#6C1818} ʼN　\color{#392E2E}  MY the cutest bunbunito ◞  }}$ <br>
+</sub> </p>
+<p align="left"> ‎ ‎  ‎                ‎         ‎      ‎       ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎    ‎   ‎   ‎   ‎   ‎       ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎ <sub>${\text{\color{#502424} they're my favorite people fuck the others. — ⭕️  }}$ ‎ <br> </sub>   ‎
+                                                                                                                                                                                                                                                                                  <img src="https://komarev.com/ghpvc/?username=pt-awards&color=A30000&label=Victim's+of+Virabots" /> ‎</p>
+<p align="left"> ‎ <sub>‎ ${\text{\color{#6C1818} the 　\color{#960505} most 　\color{#A30000} gorgeous 　\color{#B0093A}  devil 　\color{#A02949} princess 　\color{#960505} ever! 　\color{#6C1818} TDL 　\color{#502424} IRL. She's me. — ⭕️ }}$ <br> </sub>
+</p>
+<p align="left">   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎</p> 
+
+Wip okie waity
+ ‎    ‎     ‎  ‎    ‎      ‎   ‎    ‎‎   ‎ ‎   ‎     ‎       
