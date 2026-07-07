@@ -1,6 +1,5 @@
 ⠀ ⠀ ⠀
 
-##### <p align="center"> <img src="https://komarev.com/ghpvc/?username=pt-awards&label=Victim's+of+Virabots&color=A30000" alt="pawnresearch" /> </p>
 
  ⠀ ⠀ 
 ⠀ ⠀
@@ -14,17 +13,60 @@ ${\text{\color{#6C1818} professionally 　\color{#960505} Diagnosed 　\color{#A
 </sub>
  ⠀ ⠀ <p align="center"><img src="https://github.com/user-attachments/assets/be57835d-3d1a-47ee-903e-740cd3a220cc" width="500" height="auto" align="center"></img></a> <br> ⠀
 
-<img align="right" width="320" height="auto" alt="image" src="https://github.com/user-attachments/assets/2d12bf6a-2660-4ff6-9968-af2fd645eb4e"  /> ‎ <br>
 
-<p align="left">               ‎                    ‎   ‎        ‎‎‎  ‎   ‎ ‎       ‎  ‎‎‎      ‎‎‎ ‎            ‎   ‎   ‎  ‎   ‎  ‎    ‎   ‎   ‎   ‎ ‎   ‎   ‎ ‎  <sub>${\text{\color{#A30000} I LOVE my twins! 　
- \color{#960505} MY most adorbs seapuppito }}$ </sub> </p>
- <p align="left">               ‎                    ‎   ‎        ‎‎‎  ‎   ‎ ‎       ‎  ‎‎‎      ‎‎‎ ‎            ‎   ‎   ‎  ‎   ‎  ‎    ‎   ‎   ‎   ‎ ‎   ‎   ‎ ‎  <sub>${\text{\color{#6C1818} ʼN　\color{#392E2E}  MY the cutest bunbunito ◞  }}$ <br>
-</sub> </p>
-<p align="left"> ‎ ‎  ‎                ‎         ‎      ‎       ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎    ‎   ‎   ‎   ‎   ‎       ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎ <sub>${\text{\color{#502424} they're my favorite people fuck the others. — ⭕️  }}$ ‎ <br> </sub>   ‎
+<img align="right"
+src="https://github.com/user-attachments/assets/66a719cd-5dd7-47ba-9d83-5caff9c9a783"
+width="48%">
+<div style="margin-right: 120px;">
+
+ <img src="https://komarev.com/ghpvc/?username=pt-awards&label=Victim's+of+Virabots&color=A30000" /> 
+
+<br><br>
+
+
+<table>
+
+<tr>
+<td>
+
+<h3>
+<p align="center">
+$\large{\color{#A30000}{\textsf{MADE\ 4\ SIN, BABY!}}}$
+
+</p>
+
+</h3>
+
+<p>
+
+𖨆⋗ hmu If ya wanna oomf me up idm at all
+
+𖨆⋗ I prefer hanging out with my twins
+
+— I feel more cmfy w/ ʼem srry man
+<br>
+𖨆⋗ I'm TDL irl trust me. 
+
+— don't make this a competition
+— I couldn't careless abt u. 
+<br>
+𖨆⋗ I love my twins. <3  —⭕️ 
+
+</p>
+
+</td>
+</tr>
+</table>
+<br><br>‎
                                                                                                                          
+<p align="left">
+  ⠀<a href="https://tcv.straw.page/"><img src="https://github.com/user-attachments/assets/cccb2113-31c6-419c-89a4-af6b99ef3447" width="100" height="auto
+  &nbsp;&nbsp;
+  ⠀   ⠀<a href="https://fluffle.cc/TDL"><img src="https://github.com/user-attachments/assets/4e1d66ac-cb54-4608-bdd6-f88bd2ff004f" width="100" height="auto"
+  <a href="https://guns.lol/vicagent"><img src="https://github.com/user-attachments/assets/87461a89-bcaf-4a8a-8e29-5902e58d8944" width="100" height="auto"
+                                        
+</p>
+</div>
 
+</div>
 
-<p align="left">   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎</p> 
-  <p align="left"></img></a> ⠀<a href="https://tcv.straw.page/"><img src="https://github.com/user-attachments/assets/cccb2113-31c6-419c-89a4-af6b99ef3447" width="100" height="auto" align="left"></img></a>⠀ ⠀   ⠀<a href="https://fluffle.cc/TDL"><img src="https://github.com/user-attachments/assets/4e1d66ac-cb54-4608-bdd6-f88bd2ff004f" width="100" height="auto" align="left"></img><p align="center"><a href="https://guns.lol/vicagent"><img src="https://github.com/user-attachments/assets/87461a89-bcaf-4a8a-8e29-5902e58d8944" width="100" height="auto" align="left"> </img><p align="left"></p> 
- ‎    ‎     ‎  ‎    ‎      ‎   ‎    ‎‎   ‎ ‎   ‎     ‎       
-<img width="123" height="auto" alt="ezgif com-crop (15)" src="https://github.com/user-attachments/assets/8d5c9b24-e331-41d2-98d4-6190acc19341" />
