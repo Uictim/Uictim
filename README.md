@@ -48,7 +48,7 @@ $\large{\color{#A30000}{\textsf{MADE\ 4\ SIN, BABY!}}}$
 𖨆⋗ I'm TDL irl trust me. 
 
 — don't make this a competition
-— I couldn't careless abt u. 
+— Idgaf abt u!
 <br>
 𖨆⋗ I love my twins. <3  —⭕️ 
 
