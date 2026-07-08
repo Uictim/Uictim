@@ -62,7 +62,9 @@ $\large{\color{#A30000}{\textsf{MADE\ 4\ SIN, BABY!}}}$
 <p align="left">
   ⠀<a href="https://tcv.straw.page/"><img src="https://github.com/user-attachments/assets/cccb2113-31c6-419c-89a4-af6b99ef3447" width="100" height="auto
   &nbsp;&nbsp;
+&nbsp;&nbsp;                  
   ⠀   ⠀<a href="https://fluffle.cc/TDL"><img src="https://github.com/user-attachments/assets/4e1d66ac-cb54-4608-bdd6-f88bd2ff004f" width="100" height="auto"
+                                           &nbsp;&nbsp;
   <a href="https://guns.lol/vicagent"><img src="https://github.com/user-attachments/assets/87461a89-bcaf-4a8a-8e29-5902e58d8944" width="100" height="auto"
                                         
 </p>
