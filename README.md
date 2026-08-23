@@ -6,5 +6,10 @@ HAII CUTE CHOO makes out with you hehe
 not active lately and if you're an old/ex friend of mines please dnttm! I have my own reasons on why I chose this path. and I wish for the best for everynyan!
 </p>
  <p align="center">
-<img width="234" height="234" alt="HL4W4WEXoAA3qWQ" src="https://github.com/user-attachments/assets/eb54f270-39d6-41ff-b18f-fa9d35bdc8de" />
+<img width="720" height="662" alt="Screenshot_2026-08-21-14-46-40-759_com zhiliaoapp musically~2" src="https://github.com/user-attachments/assets/1591ed9d-ff41-4482-8c24-30c034ff77c2" />
+
  </p>
+
+
+
+call me by Princess. not __Dark__ << only preferred if you're close.
