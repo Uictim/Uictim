@@ -13,3 +13,6 @@ not active lately and if you're an old/ex friend of mines please dnttm! I have m
 
 
 call me by Princess. not __Dark__ << only preferred if you're close.
+
+this is so CUTESY thank yaw sm NADDIE for showing me this site !!!
+<a href="https://www.imood.com/users/TDL"><img src="https://moods.imood.com/display/uname-TDL/fg-Ff0000/bg-000000/imood.gif" alt="The current mood of TDL at www.imood.com" border="0"></a>
