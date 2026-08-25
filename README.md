@@ -1,13 +1,18 @@
-<p align="center"> oh my GOODDDDD ugh stop stalking me and trying to copy every shit I do
+<p align="center"> <img width="75" src="https://komarev.com/ghpvc/?username=pt-awards&label=♡&color=FF0000">
+<a href="https://www.imood.com/users/TDL"><img src="https://moods.imood.com/display/uname-TDL/fg-Ff0000/bg-000000/imood.gif" alt="The current mood of TDL at www.imood.com" border="4"></a>
 </p>
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&pause=1000&color=F70000&width=435&lines=You+can't+come+into+my+crib%2C+this+ain't+MTV!" alt="Typing SVG" /></a> </p>
  <p align="center">
-<img width="720" height="662" alt="Screenshot_2026-08-21-14-46-40-759_com zhiliaoapp musically~2" src="https://github.com/user-attachments/assets/1591ed9d-ff41-4482-8c24-30c034ff77c2" />
-
+<img width="620" auto" src="https://i.postimg.cc/2yWVth61/ezgif-com-crop-(9).gif" />
  </p>
+ 
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&pause=1000&color=F70000&width=435&lines=+++++++++++++++++I+feel+like+SUICIDAL-IDOL%2C+too+much+ecstasy!" alt="Typing SVG" /></a>
+</p>
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31egco2yozg7rydgr22azprrdzeq&cover_image=false&theme=default&show_offline=false&background_color=ff0000&interchange=false&profanity=false&hide_remaster=true&bar_color=000000&bar_color_cover=false">
+  </a>
+</p>
 
 
-
-call me by Princess. not __Dark__ << only preferred if you're close.
-
-this is so CUTESY thank yaw sm NADDIE for showing me this site !!!
-<a href="https://www.imood.com/users/TDL"><img src="https://moods.imood.com/display/uname-TDL/fg-Ff0000/bg-000000/imood.gif" alt="The current mood of TDL at www.imood.com" border="0"></a>
