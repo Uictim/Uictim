@@ -1,1 +1,1 @@
-he tryna act like he's not going to commit in a few days 😂😂
+it's been 12 hours ever since he went offline, he said he was gonna go home but it was a tornado watch and I'm so fucking worried and scared, he was supposed to go home from school and eat food, draw and talk to me until I fall asleep but I don't even know if he has made it home safely, all I could do is wait here like a pathetic fuck. I've been sobbing my eyes out sick and concerned, I swear if something happens to him I'll fucking kill myself 
